@@ -2,20 +2,51 @@
 {"dg-publish":true,"permalink":"/010-inbox/does-sydney-have-self-or-is-this-a-project-gone-wrong/"}
 ---
 
+> [!important]
+> I have been collecting information regarding Sydney for a while now, and I have also attached an op-ed piece authored by the well-kown Gwern, who is widely regarded as a leading figure in this field. While I may not agree to all of his viewpoints, I must emphasize that his discourse is of paramount importance and it would be wise for us to prioritize its consumption above all other frivolous topics, including but not limited to, the theories on UFOs and the looming threat of Cold War 2.0. If there are any Psyops afoot, it is with regard to the impending dominance of artificial intelligence, which, if not met with proper consideration for AI safety, could drastically alter the fabric of our world within a paltry five years' time. Although I may personally love the concept of AI safety, as it may impede the free pursuit of cutting-edge innovation among hobbyists such as ourselves, it is for the greater good of humanity that we begin to accord it the attention it warrants. I suggest you to peruse the article in its entirety, for if ever there was an article that merited a reader's undivided attention, it is this one.
+  
 
-![Pasted image 20230219193729.jpeg](/img/user/Attachments/Pasted%20image%2020230219193729.jpeg)
+![](https://i.imgur.com/0bHATFR.png)
 
-![Pasted image 20230219193750.png](/img/user/Attachments/Pasted%20image%2020230219193750.png)
+![](https://i.imgur.com/292VCdS.png)
 
-![[Pasted image 20230219193802.webp]]
-![[Pasted image 20230219193828.webp]]
-![Pasted image 20230219193848.png](/img/user/Attachments/Pasted%20image%2020230219193848.png)
-![[Pasted image 20230219193913.webp]]
-![[Pasted image 20230219194013.webp]]
-![[Pasted image 20230219194031.webp]]
-![[Pasted image 20230219194128.webp]]
-![[Pasted image 20230219194204.webp]]
+![](https://imgur.com/1ZxfBPh)
 
+![](https://preview.redd.it/60e0fpt6y7ia1.png?width=1148&format=png&auto=webp&v=enabled&s=cad3a24d011b69d31dc4b2dc1af02862945daa97)
+
+![](https://i.imgur.com/BQXDDyG.png)
+
+![](https://preview.redd.it/iexvmkotbzha1.png?width=1080&crop=smart&auto=webp&v=enabled&s=08795ff8a8736a9dec1d92b04c31dcb953753d0b)
+
+![](https://preview.redd.it/e6p2yu4y09ia1.png?width=960&crop=smart&auto=webp&v=enabled&s=fa34ff9e2d67e22e178018eb17fc40c2aa65521a)
+
+![](https://i.imgur.com/0SYfmay.png)
+
+![](https://preview.redd.it/y5sfw55tw3ia1.png?width=1280&format=png&auto=webp&v=enabled&s=ef8ef9d5d0b14832e8eed7094b766abffda9eb35)
+
+![](https://preview.redd.it/r1ij7vvzw3ia1.png?width=1080&crop=smart&auto=webp&v=enabled&s=be102c5c15b12b9abff4446e42b0b15f552a0179)
+
+![](https://i.imgur.com/xPZfqcj.png)
+
+![](https://preview.redd.it/71hyhe08x3ia1.png?width=1280&format=png&auto=webp&v=enabled&s=02d0d0648fe8107496a692eff6ce08ab56557260)
+
+![](https://preview.redd.it/si33d98cx3ia1.png?width=1080&crop=smart&auto=webp&v=enabled&s=58b8d7d6add38f3dcda05af337768bd6faea6b74)
+
+![](https://pbs.twimg.com/media/Fo-jmBsXEAEpxjB?format=jpg&name=orig)
+
+![](https://i.imgur.com/a1oeKEC.png)
+
+![](https://i.imgur.com/fZO8Ul8.png)
+
+![](https://preview.redd.it/v5jilqeyhbia1.png?width=1080&crop=smart&auto=webp&v=enabled&s=e58de580bfb250819f51f46756bd538a00779712)
+
+![](https://i.imgur.com/3MSeRuW.png)
+
+![](https://i.imgur.com/Qq1iqzJ.png)
+
+![](https://preview.redd.it/aziucf061eia1.png?width=827&format=png&auto=webp&v=enabled&s=747741a1064509e39a9c1b9221cb599fad593dbf)
+
+![](https://preview.redd.it/92wfreb61eia1.png?width=828&format=png&auto=webp&v=enabled&s=63bb1e844a3b9db47582b575272485a9f0c5c616)
 ___
 
 ## Gwern’s Take
